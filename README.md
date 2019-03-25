@@ -1,0 +1,2 @@
+# Public
+Hanya meluangkan waktu
